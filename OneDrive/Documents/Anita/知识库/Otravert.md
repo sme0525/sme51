@@ -1,7 +1,7 @@
 
 # Otravert
 
-#心理学 
+#心理学
 
 [Link](https://www.facebook.com/loo.s.xao/posts/pfbid033GgvuP8QByvkXYwf3q24CZwaQZm4dHr4xK74XVQU4du4cSd6J3BmhqiHx8MNnuWZl)
 
@@ -37,7 +37,7 @@ true participant)。Otrovert 在任何群体中都内心感觉自己像个局外
 保罗·萨特 (Jean-Paul Sartre) 完美地描述了这种感觉：
 “在这些快乐、理性的声音中，我独自一人”。
 Otrovert 的不合群特质也可以是一种天赋，其中 Otrovert 最核心的天赋是：
-**独立原创**的思考能力，跳出“==🟡蜂巢思维==” (Thinking Outside the Hive)。
+**独立原创**的思考能力，跳出“**蜂巢思维**” (Thinking Outside the Hive)。
 
 Otrovert 的特质使他们天然地适合创新。
 社会中的大多数人（包括内向者和外向者）都倾向于接受“蜂巢思维”或集体共识，
